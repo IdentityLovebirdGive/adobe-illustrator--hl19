@@ -1,4 +1,4 @@
-# 
+# premium Adobe Illustrator for macOS Template | gradient maps + AI upscaling is the best Adobe Illustrator for macOS template, featuring gradient maps and AI upscaling. Safe,
 
 
 
